@@ -5,6 +5,8 @@
 - 1 курс — Сделала приложение «ATLAS» для ветеринаров совместно с ПГАТУ
 - 2 курс — Разрабатывала приложение «Флоу» совместно с Т-Банком  
 
-<img width="680" height="432" alt="image" src="https://github.com/user-attachments/assets/ea8c9d30-c10d-49d3-a082-cf62e8344faa" />  
+<img width="680" height="432" alt="image" src="https://github.com/user-attachments/assets/65afce36-0cec-4deb-8467-63517c50e3ed" />
+
+
 
 *Нахожу вдохновение у @renatskosarev @withmarko @gazijarin* 
