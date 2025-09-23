@@ -9,7 +9,7 @@
 
 *Нахожу вдохновение у @renatskosarev @withmarko @gazijarin* 
 
-<img width="88" height="107" alt="Subject" src="https://github.com/user-attachments/assets/901f4f1c-1b73-4acf-a7cc-97e1b2bc4bd1" />
+<img width="78" height="97" alt="Subject" src="https://github.com/user-attachments/assets/901f4f1c-1b73-4acf-a7cc-97e1b2bc4bd1" />
 
 
 
