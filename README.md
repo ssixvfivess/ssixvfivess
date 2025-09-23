@@ -8,3 +8,7 @@
 
 
 *Нахожу вдохновение у @renatskosarev @withmarko @gazijarin* 
+
+<img width="125" height="112" alt="image" src="https://github.com/user-attachments/assets/7872b7ff-462f-42f1-a685-f470b1fd8cb6" />
+
+
