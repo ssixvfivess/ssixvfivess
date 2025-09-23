@@ -9,6 +9,8 @@
 
 *Нахожу вдохновение у @renatskosarev @withmarko @gazijarin* 
 
-<img width="125" height="112" alt="image" src="https://github.com/user-attachments/assets/7872b7ff-462f-42f1-a685-f470b1fd8cb6" />
+<img width="125" height="112" alt="IMG_2752" src="https://github.com/user-attachments/assets/d111e8b2-b6d5-4709-a259-f10d727a8f0b" />
+
+
 
 
